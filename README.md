@@ -1,0 +1,2 @@
+# premium-lathe-dog-001-lathe-dog-forging-between-ce
+Tired of losing track of your lathe dog dimensions and forging sequences across scattered notes and spreadsheets? The Lathe Dog Forging &amp; Between Center Craft Hub is a dedicated Notion workspace that eliminates the chaos of managing multiple forging projects.  This template organizes every aspect of your lathe dog creation—from raw material specs a
